@@ -1,3 +1,4 @@
 Caio Castro 
-Juliana Paes
+Bruno Gagliasso
 Angelina Jolie
+Giovanna Ewbank
